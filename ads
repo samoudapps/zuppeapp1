@@ -1,0 +1,1 @@
+com.inzgapps2store.hadighedikzuppegoldappadrari_app1
